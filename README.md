@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **nandiniduragkar@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1wtGNAyuGLie3iucGCuO_0mACLXNwwPk-/view?usp=drive_link]
+- 📄 Know about my experiences [https://drive.google.com/file/d/1PiJYqhKFfowPEtLHX2XZUapcnz4QMdRr/view?usp=drive_link]
 
 - ⚡ Fun fact **I think I am funny.**
 
